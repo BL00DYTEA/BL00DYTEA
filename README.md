@@ -1,0 +1,27 @@
+![](https://files.catbox.moe/jxfqxx.jpeg)
+*art is not by me*
+
+
+hellooo, name is cassy (or gary)! im 15, 29th jan!!
+feel free to c*h or int me, i loooveeee yappin and meet new people!!
+
+
+dont copy + taking inspo from me, i do not give any permissions on them😂
+
+check main github for more info
+
+
+<!--
+**BL00DYTEA/BL00DYTEA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+Here are some ideas to get you started:
+
+- 🔭 I’m currently working on ...
+- 🌱 I’m currently learning ...
+- 👯 I’m looking to collaborate on ...
+- 🤔 I’m looking for help with ...
+- 💬 Ask me about ...
+- 📫 How to reach me: ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+-->
